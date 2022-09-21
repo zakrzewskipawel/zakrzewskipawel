@@ -8,7 +8,7 @@
 -   I'm currently during learn Flutter
 -   I'm diving deep into  **Flutter**,  **Dart**  and  **Github**
 -   Yes, I'm  **looking for job to develop my skills**  and to contribute in
--   I love listening to  **music** and spending time with my wifey  👩  and babys  👩👩 
+-   I love listening to  **music** and spending time with my wifey  👩  and children 👩👩 
 
 
 ### 
